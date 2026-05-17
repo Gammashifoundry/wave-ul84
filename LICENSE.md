@@ -1,4 +1,4 @@
-# 
+# updated QuickBooks for PC plugins is the best QuickBooks for PC plugins with mobile-access and budgeting. Safe, reliable, and optimized for maximum performance.
 
 
 
